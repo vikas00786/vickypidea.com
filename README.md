@@ -2,7 +2,7 @@
 
 Hay! welcome to my channel.
 
-Tomorrow you will be shown some news by vicky namdev on my you tube channel!
+Tomorrow you will be shown some news by vicky Bana ! namdev on my you tube channel!
 
 For now : I Know
 
